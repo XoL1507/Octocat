@@ -1,4 +1,4 @@
-# - 👋 Hi, I’m @SFranklinRoa
+# - 👋 Hi, I’m @Octocat
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning unique job
 - 💞️ I’m looking to collaborate on im not sure
